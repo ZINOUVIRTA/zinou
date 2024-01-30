@@ -1,3 +1,0 @@
-"# virta" 
-"# virta" 
-"# zinou" 
